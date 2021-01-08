@@ -1,6 +1,6 @@
 # ** Hello fellow BecodIAn! ** :octocat:
 
-The story starts among the fog of * Machu Pichu * Mountain. :sparkles:  :sparkles:  :sparkles:
+The story starts among the fog of *Machu Pichu* Mountain. :sparkles:  :sparkles:  :sparkles:
 
 Once uppon a time a little village used to organize Heavy metal concert that you could hear from several miles away.
 
