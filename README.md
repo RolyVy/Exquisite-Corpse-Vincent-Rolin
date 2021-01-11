@@ -12,4 +12,4 @@ There was a strict door policy. It was definetely harder to get in than the Capi
 
 A zombie came, wanting to enter but had no soul left.
 He was thinking: "Mmh ... I only have one possibility".
-And so he called The Q-anon shaman to enforce the door!
+And so he called The QAnon shaman to break the door down!
