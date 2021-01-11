@@ -9,3 +9,7 @@ It was called the :metal: **HELL o WORLD Festival** :metal: and people from all 
 At the gates of this festival Satan was awaiting. Tickets cost only one **Soul**.
 
 There was a strict door policy. It was definetely harder to get in than the Capitol. 
+
+A zombie came, wanting to enter but had no soul left.
+He was thinking: "Mmh ... I only have one possibility".
+And so he called The Q-anon shaman to enforce the door!
